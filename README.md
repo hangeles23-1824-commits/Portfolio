@@ -1,3 +1,1 @@
 # Portfolio
-
-dito ba pumapasok?
